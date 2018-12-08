@@ -40,19 +40,11 @@ description: 王寿山隆武岩
 
 \*\*\*\*
 
-（刘德标石杰 新浪博客）
-
-附：柳艳聊一聊百家号（节录一段文字和两图）
-
-
-
-![https://ss0.baidu.com/6ONWsjip0QIZ8tyhnq/it/u=2736237756,2487487192&amp;fm=173&amp;app=49&amp;f=JPEG?w=227&amp;h=340&amp;s=9A82AE45523336264CA9DC960300C081](file://localhost/Users/charleslai/Library/Group%20Containers/UBF8T346G9.Office/msoclip1/01/clip_image002.gif)
-
-唐王岩洞口
-
-在山中还有唐王岩1个，它是明末唐王在此避难的大岩洞。洞内深广弯曲，可容数百人。仍有一块平面石桌。石桌长135厘米，宽122厘米，厚15厘米。岩壁上原镌刻“隆武到此“四字。根据梅县博物馆专业考古人员廖玉文、汤洪标等人在1985年秋考察鉴定，由于岩洞受雷击和天雨等自然剥蚀，壁间风化层明显，现在只有“到”字形旁‘至”和“此”字旁“止”可认。《嘉应州志》谓唐王岩墨迹犹存，其“墨迹”实已难于寻觅。
-
-![https://ss1.baidu.com/6ONXsjip0QIZ8tyhnq/it/u=269781085,2924094148&amp;fm=173&amp;app=49&amp;f=JPEG?w=227&amp;h=340&amp;s=80D08E66FAE9B3744445BD070100E0C1](file://localhost/Users/charleslai/Library/Group%20Containers/UBF8T346G9.Office/msoclip1/01/clip_image004.gif)
-
-王寿山的唐王岩
+[刘德标石杰 新浪博客](http://blog.sina.com.cn/s/blog_15dee421d0102zhda.html)
+> 附：柳艳聊一聊百家号（节录一段文字和两图）
+>![https://ss0.baidu.com/6ONWsjip0QIZ8tyhnq/it/u=2736237756,2487487192&amp;fm=173&amp;app=49&amp;f=JPEG?w=227&amp;h=340&amp;s=9A82AE45523336264CA9DC960300C081](https://ss1.baidu.com/6ONXsjip0QIZ8tyhnq/it/u=269781085,2924094148&fm=173&app=49&f=JPEG?w=227&h=340&s=80D08E66FAE9B3744445BD070100E0C1)
+>唐王岩洞口
+>在山中还有唐王岩1个，它是明末唐王在此避难的大岩洞。洞内深广弯曲，可容数百人。仍有一块平面石桌。石桌长135厘米，宽122厘米，厚15厘米。岩壁上原镌刻“隆武到此“四字。根据梅县博物馆专业考古人员廖玉文、汤洪标等人在1985年秋考察鉴定，由于岩洞受雷击和天雨等自然剥蚀，壁间风化层明显，现在只有“到”字形旁‘至”和“此”字旁“止”可认。《嘉应州志》谓唐王岩墨迹犹存，其“墨迹”实已难于寻觅。
+>![https://ss1.baidu.com/6ONXsjip0QIZ8tyhnq/it/u=269781085,2924094148&amp;fm=173&amp;app=49&amp;f=JPEG?w=227&amp;h=340&amp;s=80D08E66FAE9B3744445BD070100E0C1](https://ss1.baidu.com/6ONXsjip0QIZ8tyhnq/it/u=269781085,2924094148&amp;fm=173&amp;app=49&amp;f=JPEG?w=227&amp;h=340&amp;s=80D08E66FAE9B3744445BD070100E0C1)
+>王寿山的唐王岩
 
